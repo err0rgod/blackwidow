@@ -6,7 +6,6 @@ Developed by err0rgod.
 
 
 
-
 UNDERSTAND
 
 
